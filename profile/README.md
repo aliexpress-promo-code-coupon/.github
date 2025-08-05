@@ -10,6 +10,14 @@
 | AU$8 Off | AliExpress Promo Code: Save AU$8 On Orders Over AU$60 | - | [Show Coupon Code](https://coupons.dynews.net/AliExpress-Coupons) |
 | AU$30 Off | AliExpress Promo Code: AU$30 Off Your Order of AU$200+ | - | [Show Coupon Code](https://coupons.dynews.net/AliExpress-Coupons) |
 
+
+-----------
+
+<img width="1647" height="485" alt="image" src="https://github.com/user-attachments/assets/70f04ba1-6f7f-49f5-8d57-b6ba2cb15a42" />
+
+
+-----------
+
 ## Redeeming Your AliExpress Promo Code
 1. Visit [AliExpress.com](https://www.aliexpress.com) to explore a wide range of discounted products for Australian shoppers.
 2. Browse categories or search for your desired items and add them to your cart.
