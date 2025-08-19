@@ -4,11 +4,11 @@
 
 | Discount | Description | Expiration Date | Coupon Code |
 |----------|-------------|-----------------|-------------|
-| AU$10 Off | Get AU$10 Off with AliExpress Coupon Code on Orders Over AU$40 | - | [Show Coupon Code](https://coupons.dynews.net/AliExpress-Coupons) |
-| AU$15 Off | Take AU$15 Off Your Order of AU$80+ | - | [Show Coupon Code](https://coupons.dynews.net/AliExpress-Coupons) |
-| AU$20 Off | AliExpress Promo Code: AU$20 Off Your Order of AU$120+ | - | [Show Coupon Code](https://coupons.dynews.net/AliExpress-Coupons) |
-| AU$8 Off | AliExpress Promo Code: Save AU$8 On Orders Over AU$60 | - | [Show Coupon Code](https://coupons.dynews.net/AliExpress-Coupons) |
-| AU$30 Off | AliExpress Promo Code: AU$30 Off Your Order of AU$200+ | - | [Show Coupon Code](https://coupons.dynews.net/AliExpress-Coupons) |
+| AU$10 Off | Get AU$10 Off with AliExpress Coupon Code on Orders Over AU$40 | - | [Show Coupon Code](https://coupons.dynews.net/aliexpress-coupons/) |
+| AU$15 Off | Take AU$15 Off Your Order of AU$80+ | - | [Show Coupon Code](https://coupons.dynews.net/aliexpress-coupons/) |
+| AU$20 Off | AliExpress Promo Code: AU$20 Off Your Order of AU$120+ | - | [Show Coupon Code](https://coupons.dynews.net/aliexpress-coupons/) |
+| AU$8 Off | AliExpress Promo Code: Save AU$8 On Orders Over AU$60 | - | [Show Coupon Code](https://coupons.dynews.net/aliexpress-coupons/) |
+| AU$30 Off | AliExpress Promo Code: AU$30 Off Your Order of AU$200+ | - | [Show Coupon Code](https://coupons.dynews.net/aliexpress-coupons/) |
 
 
 -----------
@@ -29,7 +29,7 @@
 - Verify that the coupon code was entered correctly.
 - Ensure your cart meets the minimum purchase requirement for the code.
 - Check if the promo code is still valid and has not expired.
-- Try an alternative AliExpress coupon code from [coupons.dynews.net/AliExpress-Coupons](https://coupons.dynews.net/AliExpress-Coupons).
+- Try an alternative AliExpress coupon code from [coupons.dynews.net/AliExpress-Coupons](https://coupons.dynews.net/aliexpress-coupons/).
 
 ## Combining AliExpress Coupon Codes
 AliExpress does not permit stacking multiple discount codes. Australian shoppers should select the best promo code for their order to maximize savings. Prioritize codes offering the highest discount for your purchase amount.
@@ -52,7 +52,7 @@ Australian shoppers can find significant savings in the "Super Deal" section on 
 Join the free MyCoin Rewards program to earn coins through daily logins, app games, or purchases. Each coin translates to 1 cent in rewards, redeemable for discounts on future orders, enhancing savings for Australian users.
 
 ### Did AliExpress Have a Black Friday or Cyber Monday Sale in 2024?
-Yes, AliExpress offered Black Friday and Cyber Monday sales in 2024 with discounts up to 70% on categories like clothing, electronics, and accessories. Australian shoppers also benefited from tiered coupon codes based on order totals. Check [coupons.dynews.net/AliExpress-Coupons](https://coupons.dynews.net/AliExpress-Coupons) for similar deals in 2025.
+Yes, AliExpress offered Black Friday and Cyber Monday sales in 2024 with discounts up to 70% on categories like clothing, electronics, and accessories. Australian shoppers also benefited from tiered coupon codes based on order totals. Check [coupons.dynews.net/AliExpress-Coupons](https://coupons.dynews.net/aliexpress-coupons/) for similar deals in 2025.
 
 ## Other Important Tips for AliExpress Shoppers in Australia
 
